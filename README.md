@@ -1,6 +1,6 @@
 thuann1212
 <p align="center">
-  <img src="https://github.com/thuannn1212/thuann1212/blob/main/gif.gif?raw=true" alt="Hi" width="400"/>
+  <img src="https://github.com/thuannn1212/thuannn1212/blob/main/gif.gif?raw=true" alt="Hi" width="400"/>
 </p>
 
 # ✨Hi there, nice to meet you!

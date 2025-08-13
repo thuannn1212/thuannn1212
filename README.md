@@ -11,7 +11,7 @@ I’m Dang Xuan Hoang Thuan, and here’s a little about me:
 
 🎥 I love watching romantic movies, diving into books, and listening to music and my favorite artists include Noo Phuoc Thinh, BTS, Imagine Dragons!
 
-🎶 Here is my favorite quote:
+🎶 My favorite quote:
 
 "The only way to do great work is to love what you do." - — Steve Jobs 
 
